@@ -1,1 +1,1 @@
-My first readme
+its hard to gain
